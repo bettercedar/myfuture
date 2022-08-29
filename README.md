@@ -1,2 +1,2 @@
 # myfuture
-a secret of my deep heart &amp; go to somewhere I preferred
+a secret of my deep heart &amp; go somewhere I preferred
